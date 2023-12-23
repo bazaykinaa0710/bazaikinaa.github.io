@@ -1,1 +1,1 @@
- bazaikinaa0710.github.io
+ bazaikinaa.github.io
